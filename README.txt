@@ -1,0 +1,1 @@
+just trying out things here for the starters. will make a better README later.
